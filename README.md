@@ -1,0 +1,2 @@
+# BDT
+Bangladesh taka 
